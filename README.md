@@ -13,6 +13,8 @@
 
 > ❗ **免责声明**：请遵守所在地区法律法规，本项目不对任何法律问题承担责任。使用即视为已知悉并接受上述条款。
 
+### 📌 TG 百科 / 申诉 / 客户端汉化：[@daowei8](https://t.me/daowei8) &nbsp;&nbsp;&nbsp; 🛒 购买网站：[https://tgsss.com/568FC132](https://tgsss.com/568FC132)
+
 <br>
 
 </div>
