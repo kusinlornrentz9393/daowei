@@ -48,7 +48,7 @@
 | ⚡️ 资源分类 | 📦 平台 / 资源名称 | 💡 核心亮点与介绍 | 🔗 快捷直达 |
 | :--- | :--- | :--- | :--- |
 | **🛒 账号源头** | **[全品类发卡平台](https://tgsss.com/568FC132)** | TG现号秒发、各区优质资源，24h全自动发货保障 | [👉 点击选购](https://tgsss.com/568FC132) |
-| **🤖 AI 生产力** | **[AI 高级订阅中心](https://pay.ldxp.cn/shop/008)** | 高频生产力工具账号订阅，安全稳定特惠 | [👉 立即订阅](https://pay.ldxp.cn/shop/008) |
+| **🤖 AI 生产力** | **[AI 高级订阅中心](https://pay.ldxp.cn/shop/0000)** | 高频生产力工具账号订阅，安全稳定特惠 | [👉 立即订阅](https://pay.ldxp.cn/shop/0000) |
 | **🍎 苹果生态** | **[海外 Apple ID 共享](https://daoid.pages.dev/)** | 外区 ID 免费使用，轻松下载海外应用商店 App | [👉 免费获取](https://daoid.pages.dev/) |
 | **✈️ 科学上网** | **[老牌高速机场 · 极速版](https://aff.v2ny.mom?path=register&code=iEwQYZsv)** | 稳定解锁流媒体与 TG，晚高峰秒开不卡顿 | [👉 注册体验](https://aff.v2ny.mom?path=register&code=iEwQYZsv) |
 | **✈️ 科学上网** | **[老牌高速机场 · 稳定版](http://www.fb2026.cc/#/register?code=TuoTBZxP)** | 多节点覆盖，超高性价比，防风控首选网络 | [👉 注册体验](http://www.fb2026.cc/#/register?code=TuoTBZxP) |
